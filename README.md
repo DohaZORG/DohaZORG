@@ -9,7 +9,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on Microsoft
 - 🤔 I’m looking for help with 
 - 💬 Ask me about 
-- 📫 How to reach me: https://vk.com/doha_zorg
+- 📫 How to reach me: https://vk.com/zorg_74
 - 😄 Pronouns: Edya
 - ⚡ Fun fact: 
 
